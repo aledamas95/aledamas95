@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aledamas95
-- 👀 I’m interested in science, philosophy, metaphysics, poetry, writing, mural art, culinary arts, fitness, and boxing.
-- 🌱 I’m currently attending ASU to earn a BS in Statistics learning about data analysis/science.
+- 👀 I’m interested in philosophy, metaphysics, poetry, writing, mural art, culinary arts, fitness, and boxing.
+- 🌱 I’m in the process of continuous growth. . .
 - 😄 Pronouns: SHE
 - ⚡ Fun fact: The pineal gland is known as the "seat of the soul" because it was believed to have been the portal between the physical and the spiritual realm.
 
